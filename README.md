@@ -1,3 +1,6 @@
+CURRENTLY FOCUSING ON SKD
+
+
 - 👋 Hi, I’m @Khansaaufarafiqi
 - 👀 I’m interested in web desainer
 - 🌱 I’m currently learning ...
